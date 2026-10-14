@@ -1,2 +1,2 @@
-# Solo-Leveler
+# Vishv Undavia
 My GitHub profile and data analytics portfolio
